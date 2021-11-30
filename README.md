@@ -1,4 +1,4 @@
-### Hello, I'm gongqij 👋
+### Hello, I'm snowball 👋
 
 - 🔭 I’m currently working on Mars
 - 📫 How to reach me: www.gqfun.top
